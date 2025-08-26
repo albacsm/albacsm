@@ -33,6 +33,6 @@ HubSpot · Salesforce · Jira · Notion · Slack · Holded · Excel/Sheets
 ---
 
 📫 **Let’s connect!**  
-[LinkedIn](https://www.linkedin.com/in/albacorral/) · [Wellfound](#) · **albacsanjose@hotmail.com**
+[LinkedIn](https://www.linkedin.com/in/albacorral/) · (https://github.com/albacsm) · **albacsanjose@hotmail.com**
 
 
